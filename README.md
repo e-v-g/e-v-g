@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Evgeniya Shevtsova
+- 👀 I’m interested in DA/DS
+- 📫 How to reach me: e-mail: evshevtsova@yandex.ru, telegram: https://t.me/evgshevtsova
